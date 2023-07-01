@@ -10,4 +10,4 @@ Engkang Kaisi:
 - Nepu Jawi
 - Lan Sak Penunggalane
 
-#### Mugo tansa sagetmabntu sampean lan mugi cepet oleh jodone 
+#### Mugo tansa saget mabntu sampean lan mugi cepet oleh jodone 
