@@ -11,3 +11,4 @@ Engkang Kaisi:
 - Lan Sak Penunggalane
 
 #### Mugo tansa saget mabntu sampean lan mugi cepet oleh jodone 
+#### Apa kang kasebut wonten mriki mugo iso migunani lan ojo percoyo langsung 
